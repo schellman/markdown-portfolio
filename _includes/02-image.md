@@ -1,1 +1,1 @@
-! [Reds Image] (https://www.google.com/url?sa=i&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwiK1ri1-67eAhWLwMQHHYklAU0QjRx6BAgBEAU&url=https%3A%2F%2Fblogredmachine.com%2F2018%2F10%2F25%2Fcincinnati-reds-early-25-man-roster-prediction-2019%2F&psig=AOvVaw1GRowpgFHKUcM3MY56kFwU&ust=1541016352025096)
+![Reds Image] (https://imagesvc.timeincapp.com/v3/fan/image?url=https://blogredmachine.com/wp-content/uploads/getty-images/2017/07/955137108.jpeg&c=sc&w=3200&h=2133)
